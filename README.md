@@ -1,1 +1,0 @@
-# Singultech-app
